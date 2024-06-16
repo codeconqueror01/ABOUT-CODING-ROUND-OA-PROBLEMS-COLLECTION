@@ -12,6 +12,8 @@ Zomato New, Deutsche bank, Oracle OA Problems ✅
 Intuit OA Problems ✅
 Trilogy New OA problems ✅✨
 
+FANG, MANG All OA Problems Included.
+
 New Atlassian OA problems Added.
 
 New Intuit OA Problems Added.
